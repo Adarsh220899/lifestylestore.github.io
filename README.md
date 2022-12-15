@@ -1,1 +1,1 @@
-# lss.github.io
+# lss.io
