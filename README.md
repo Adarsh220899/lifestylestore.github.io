@@ -1,1 +1,1 @@
-# lss.io
+# lifestylestore.github.io
