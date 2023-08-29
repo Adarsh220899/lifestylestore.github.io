@@ -1,1 +1,1 @@
-# lifestylestore.github.io
+adarsh220899.github.io/lifestylestore.github.io/
